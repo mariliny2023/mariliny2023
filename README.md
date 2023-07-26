@@ -4,4 +4,4 @@ Entrar em contato comigo📫
 
 mariliny.euloterio@escola.pr.gov.br
 
-![](https://thumbs.gfycat.com/PoliticalLividFinch-size_restricted.gif)
+![](https://media.tenor.com/8ySBSgI9EBkAAAAd/cirilo.gif)
